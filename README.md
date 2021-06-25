@@ -1,0 +1,2 @@
+# suicinote
+See u, jesus!
